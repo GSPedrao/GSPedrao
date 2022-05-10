@@ -1,4 +1,4 @@
-### Oi! Eu sou o Gabriel Pedrão, sinta-se a vontade! 
+### Oi! Eu sou o Gabriel, sinta-se a vontade! 
 
 
 - 🌱 Cursando Tecnologia da Informação 💻
